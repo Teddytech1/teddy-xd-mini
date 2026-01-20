@@ -1,1 +1,1 @@
-# teddy-xd-mini
+# SUHO-MINI
